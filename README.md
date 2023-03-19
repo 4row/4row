@@ -7,7 +7,7 @@ I am currently learning Front - End Developing.
 *   🌍  A Learner!
 *   🖥️  Portfolio in progress ;)
 *   🧠  Currently learning Javascript
-*   🤝  I'm open to collaborating on interesting projects as a developer
+*   🤝  I'm open to messages , you can contact me anytime!
 
 ### Learning Languages -
 
